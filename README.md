@@ -1,4 +1,4 @@
-# 👋 Hi, I’m Ziyi Chen
+# 👋 Hi, I’m Ina Chen
 
 🎯 Partner-Focused Data Analyst | 📊 Strategic Insights | 🤝 Cross-Functional Collaboration  
 
